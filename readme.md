@@ -1,1 +1,1 @@
-![Koibito](https://koibito.qweme.dev/@des1nc?scale=2&theme=chainsaw-man&length=6)
+![image](https://github.com/user-attachments/assets/2cdbb291-3701-47d3-b738-16e6eff6f078)
